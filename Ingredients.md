@@ -1,4 +1,4 @@
-ingredients-
+Ingredients of RED VELVET CAKE-
 
 2 (1 ounce) bottles red food coloring
 2 tablespoons unsweetened cocoa powder
